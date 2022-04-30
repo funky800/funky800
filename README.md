@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @funky800
-- 👀 I’m interested in making friends with my fellow developers, learning new things and building projects.
+- 👀 I’m interested in making friends with fellow developers, learning new things and building projects.
 - 🌱 I’m currently learning and looking for job
 - 💞️
 - 📫 How to reach me, Facebook 👉 https://www.facebook.com/adewura.funke
